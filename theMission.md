@@ -23,3 +23,19 @@ The Talks
 >> And similarly, I strolled through Target recently and looked at
 >> their books, the new releases by major publishing companies. Holy moley, 
 >> what a bunch of shitty garbage.
+>>
+>> I used to have this collection of surrealist writing, a lot of it
+>> humorous/surrealist writing often being funny, like truth or improv etc)
+>> and Woody Allen was one of the authors. That was so interesting to me.
+
+>##### Received from Joshua on Mon Jun 05, 2017 11:39 PM
+> I guess something I've been dealing with recently . . . is feeling like 
+> I don't necessarily belong or "fit in" with a lot of the kind of "scene" I've
+> become a part of around here with the kinds of stuff I'd been making and the
+> shows I'd been playing. It just doesn't feel a whole lot like my thing 
+> anymore and I definitely still make experimental music or whatever, but it's
+> more than that too. And I'm not really feeling like I want to play shows and
+> do all that kind of thing. Maybe shows here and there when warranted. I 
+> don't know man, I don't know all the details of what I'm feeling, I just 
+> feel like I'm growing away from that whole scene and the nonsense going along
+> with it, and perhaps some of the "friends" I made along the way too.
