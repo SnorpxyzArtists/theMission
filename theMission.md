@@ -89,9 +89,7 @@ The Talks
 >> make it viable, it happens. There'd be a confirmed customer base, we'd 
 >> know it'd work out financially, and people who want it would get their 
 >> friends to do it too.
->##### J on Thu Jun 15
-> I like that, although I wouldn't want people paying ahead or anything
-> like that, you know what I mean? Pre-ordering something that might not 
-> even exist. Like Kickstarter.
 
+##### J on Thu Jun 15
+`I like that, although I wouldn't want people paying ahead or anything like that, you know what I mean? Pre-ordering something that might not even exist. Like Kickstarter.`
 
