@@ -3,13 +3,13 @@ The Idea
 Much of the concept behind Snorpxys has come about by chance, or conversation. The domain, 
 and the organization's name ended up being what they are because of a $0.99 domain sale,
 and my desire to have a name that could be spoken. Bonus points for the pronunciation 
-being arguable!! As for the conversation bits... good luck with this:
+being arguable!! As for the conversation bits... good luck with this, it's pretty non-sequitur:
 
 
 The Talks
 ---------------
 
->##### Sent to Joshua on Fri Jun 02, 2017 02:15 PM:
+>##### Sent by Casey on Fri Jun 02, 2017 02:15 PM:
 > I'd like you to also begin daily writing - don't worry about the content or 
 > quality or anything. Just write. You'll find soon that some things just write 
 > themselves. Those ones, I can publish in a Pay-what-you-want style. I'm also
@@ -39,3 +39,5 @@ The Talks
 > don't know man, I don't know all the details of what I'm feeling, I just 
 > feel like I'm growing away from that whole scene and the nonsense going along
 > with it, and perhaps some of the "friends" I made along the way too.
+>>#### Sent by Casey on Sat Jun 10, 2017 11:29 PM
+>> Due to prices, the web server is at snorp.xyz. I imagine "Snorpsees".
