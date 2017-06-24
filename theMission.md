@@ -46,4 +46,24 @@ Much of the concept behind Snorpxys has come about by chance, or conversation. T
 > How about this model: A Pay-what-you-want distribution model, with a checkbox to commit to a purchase with a physical release. Get enough to make it viable, it happens. There'd be a confirmed customer base, we'd know it'd work out financially, and people who want it would get their friends to do it too.
 
 ###### Josh:
-> I like that, although I wouldn't want people paying ahead or anything like that, you know what I mean? Pre-ordering something that might not even exist. Like Kickstarter.
+> I like that, although I wouldn't want people paying ahead or anything like that, you know what I mean? Pre-ordering something that might not even exist. Like Kickstarter
+
+###### Casey:
+> No preorders, just the honor system up to actual production, then they receive an email requesting a payment that doesn't go to us until they get the product. And with some economies of scale the price could even drop as the projected customer base rises.
+
+> Because we don't/can't profit, the price needs to cover the board's pay, the artists considerably larger pay, and basic operations expenses. The rest can be taken back out of the cost. So it's very possible that we'd actually end up crediting some of the prices back pretty often, while the artist makes what they should make in order to comfortably keep going
+
+###### Josh:
+>I think I like the way it's structured. I'm pretty sure I do. It's going to take some time and landmarks and accomplishments and etc before I fully understand it, like truly grasp it, just with the way my mind seems to work.
+
+###### Casey:
+> The one positive thing about a republican controlled government that cuts important programs, is that the People sometimes do pick up the slack. Annnnd that's about it.
+
+> Look into Scott Cawthon. You'll be inspired and reassured that you can go ahead abd be as reclusive as you need to if you're doing awesome stuff.
+
+###### Josh on Fri Jun 16:
+> I actually gave Creawriter five euros, which was 5.79 dollars. Totally not important but it's come to my mind several times nonetheless.
+
+###### Josh on Sat June 17:
+> I rage-quit Facebook. I was being surrounded with all this awful energy and it was infecting me. I really believe in that idea that a person is a mix of the five or so people they spend the most time with. (Not entirely but just that it has a major impact.) And so I was getting a lot of that influence from people in my Facebook feed and that was no good. Seems I'm in this stage of my overall recovery or my growth as a person where I'm shedding/growing apart from a lot of folks I used to be tight with. And the way the cultural landscape has changed so much seems to have expedited some of it.
+
