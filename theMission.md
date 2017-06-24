@@ -59,3 +59,21 @@ The Talks
 >>##### C on Wed Jun 14
 >> All rights of Snorpxyz Artists will always be permanently retained by the
 >> creator, without them needing to know how to go about legal nonsense.
+>> 
+>> I've actually wept just because communication between distant parts of
+>> the universe are made impossible by the speed limits on causality. The 
+>> way time feels like falling down a hole without being able to cling to 
+>> the side and stop the future from eating the past while I just sit in 
+>> the present unable to effect it. I want to fix something.
+>##### J on Wed Jun 14
+> I'm inclined to think so too. I hold conflicting ideas about that, but 
+> I'm okay with them being conflicting, especially because I figure they are 
+> only conflicting because of limits or tendencies or biases of human nature 
+> and my own mind etc.
+
+>>##### J on Thu Jun 15
+>> I don't see this being relevant any time particularly soon, but eventually 
+>> iI'd like to have sources/connections/resources for making nice, high 
+>> quality packaging for cassettes and CDs. Look into the kind of packaging 
+>> Constellation Records does. I love everything about Constellation Records. 
+>> Also a cartographer . . . eventually I will need the help of a cartographer.
