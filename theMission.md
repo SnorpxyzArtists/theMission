@@ -83,6 +83,6 @@ The Talks
 `Good. Well eventually I will want to make some tapes and CDs, and maybe vinyl, probably all limited edition stuff, but still for a while I'm gonna keep everything digital. Until perhaps there's some demand/interest in something physical.`
 * C *
 `How about this model: A Pay-what-you-want distribution model, with a checkbox to commit to a purchase with a physical release. Get enough to make it viable, it happens. There'd be a confirmed customer base, we'd know it'd work out financially, and people who want it would get their friends to do it too.`
-* J *
-`I like that, although I wouldn't want people paying ahead or anything like that, you know what I mean? Pre-ordering something that might not even exist. Like Kickstarter.`
+__J__
+>I like that, although I wouldn't want people paying ahead or anything like that, you know what I mean? Pre-ordering something that might not even exist. Like Kickstarter.
 
